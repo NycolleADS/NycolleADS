@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NycolleADS
-- 🌱 I’m currently learning ... a progamar.
+- 🌱 I’m currently learning ... a programar.
 - 📫 How to reach me ... meu email: nycollesilveira@icloud.com
 - 😄 Pronouns: ... Ela\Dela
 - ⚡ Fun fact: ... estou cursando análise e desenvolvimento de sistemas <2.
